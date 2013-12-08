@@ -1,4 +1,14 @@
-Tai-vo-lam-mobile-cho-andoid--iphone
-====================================
-
-Tai ngay game vo lam mobile cho android, iphoe game volam mobile mien phí, vo lam mobile
+<p><strong> </strong></p>
+<p><strong>Giới thiệu:</strong></p>
+<p>Được so sánh với dòng game huyền thoại của Vinagame là Võ Lâm truyền kỳ trên Android, iPhone và các Smart phone khác.<a title="võ lâm mobile" href="http://www.xoan.mobi/2013/08/tai-game-vo-lam-mobile-cho-android.html"><strong> Võ Lâm mobile cho Android, iPhone </strong></a>đang gợi lại bao nhiêu kí ức một thời nhưng không kém phần hấp dẫn từ những cải tiến.</p>
+<p>Vì là dòng game chỉ hộ trở trên dòng máy cao cấp, chay hệ điều hành và yêu cầu cấu hình tương đối đến cao nên đã có cơ hội để nhà phát triển nâng cao đồ họa của <a title="Võ lâm mobile" href="http://www.xoan.mobi/2013/08/tai-game-vo-lam-mobile-cho-android.html"><strong>Vo Lam mobile</strong></a>. Đưa game trở thành một trong những game online trên di động sở hữu đồ họa tốt nhất.</p>
+<p>Tiếp theo là những điểm khác biệt với những MMORPG khác.</p>
+<p><a title="tai vo lam mobile" href="http://www.xoan.mobi/2013/08/tai-game-vo-lam-mobile-cho-android.html"><span id="imgContent_40205523" class="imgContent"   style="display: block; margin-left: auto; margin-right: auto;" title="tai vo lam mobile cho iphone, ipad, ios"  alt="tai vo lam mobile cho iphone, ipad, ios" width="328" height="205" border="0" ></span></a></p>
+<p> </p>
+<p><a title="tai vo lam mobile cho android" href="http://www.xoan.mobi/2013/08/tai-game-vo-lam-mobile-cho-android.html"><strong>tai vo lam mobile cho android, iphone </strong></a></p>
+<p>Cốt truyện chính: Trong khi nhân gian đang chìm trong binh đao loạn lạc, dưới sự tranh chấp không ngừng của 9 đại phái chia làm 3 thế lực lớn, nhân vật chính xuất hiện vốn là 1 trong 36 thiên tướng nhà trời, do phạm thiên điều nên bị phạt xuống nhân gian cứu nhân độ thế. Đến khi thời cơ chín mùi sẽ được trở về thiên đình. <em><strong>Võ Lâm Mobile</strong></em> chia làm 3 thế lực chính là Trung Lập, Chính phái và Tà phái.</p>
+<p><a title="vo lam mobile cho android" href="http://www.xoan.mobi/2013/08/tai-game-vo-lam-mobile-cho-android.html"><img style="display: block; margin-left: auto; margin-right: auto;" title="võ lâm mobile" src="http://2.bp.blogspot.com/-hIMi4w9QzMM/Uh7BY7-ePoI/AAAAAAAACdk/OpZcgFuFKPg/s320/game-vo-lam-mobile.jpg" alt="võ lâm mobile" width="329" height="184" /></a></p>
+<p> </p>
+<p>Tiếp theo, các hệ thống nhân vật, hệ thống trang bị, hệ thống hộ vệ, hệ thống thú cưỡi,.. trong game đa dạng và phong phú.</p>
+<p><a href="http://www.xoan.mobi/2013/08/tai-game-vo-lam-mobile-cho-android.html"><img style="display: block; margin-left: auto; margin-right: auto;" src="http://1.bp.blogspot.com/-idg3hBsPjXs/Uh7BY28s1iI/AAAAAAAACdo/sQ_ipJjxATk/s320/vo-lam-mobile.jpg" alt="" width="323" height="195" /></a></p>
+<p> Cuối cùng, các hệ thống trang bị trong game cực hoành tráng: Hệ thống hoạt động và các minigame trong game phong phú và được tổ chức vào nhiều khoảng thời gian trong ngày, thích hợp với nhiều đối tượng người chơi. Các hệ thống tu luyện cũng rất phong phú, có tác dụng nâng cao sức mạnh cho nhân vật trên nhiều phương diện. Hệ thống hướng dẫn tính năng ưu việt theo cấp độ (Tiên Nữ Quản Gia) giúp người chơi dễ dàng làm quen và thích nghi nhanh với hoạt động trong game. Hệ thống điều khiển linh động, đa dạng bằng nút điều hướng hoặc cảm ứng trực tiếp nhưng vẫn rất dễ hiểu, đơn giản hóa nhiều thao tác thực hiện chỉ bằng 1 nút bấm.</p>
